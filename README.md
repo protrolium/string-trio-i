@@ -1,6 +1,6 @@
-# String Trio I
-### Into The Magnificient Sea, I Dispose Of Thee
-2014
+### String Trio I | Into The Magnificient Sea, I Dispose Of Thee
+
+*String Trio I : Into The Magnificient Sea, I Dispose Of Thee* (2014)
 
 Instrumentation: Violin, Viola Cello<br>
 Duration: 11 minutes
